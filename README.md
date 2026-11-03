@@ -1,3 +1,2 @@
 # I Love Miss Lee Only 
-- https://anissatta.github.io/l/
-
+- https://daegae.github.io/l/
